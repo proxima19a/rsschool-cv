@@ -1,1 +1,1 @@
-# rsschool-cv
+https://proxima19a.github.io/rsschool-cv/cv
